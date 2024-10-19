@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @XRICA
 - 👀 I’m interested in Artificial intelligence++3D++2D...
-- 💞️ I’m looking to collaborate with smart an intelligent teams with same interest.
+- 🧠 I’m looking to collaborate with smart an intelligent teams with same interest.
 - 📫 How to reach me; xavier.rica20@gmail.com
 
 <!---
